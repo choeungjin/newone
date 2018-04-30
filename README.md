@@ -1,1 +1,1 @@
-# newone.github.io
+# newone
